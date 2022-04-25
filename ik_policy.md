@@ -21,7 +21,7 @@ For the purposes of this Privacy Policy:
 - __Application__ means the software program provided by the Company downloaded by You on any electronic device, named I-Knowledge
 
 
-- __Company__ (referred to as either "the Company", "We", "Us" or "Our" in this Agreement) refers to I-Knowledge LLC, Syria, Aleppo .
+- __Company__ (referred to as either "the Company", "We", "Us" or "Our" in this Agreement) refers to Hala Technology LLC, Syria, Aleppo .
 
 
 
